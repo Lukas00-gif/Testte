@@ -1,0 +1,1 @@
+hora de ler a parada **bla bla**
